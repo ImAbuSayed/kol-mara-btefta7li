@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حياتي اقتربي فالليل طويل
+> ونار الشوق في قلبي دليل
+> دعنا نذوب في هذا الغرام
+> ونحكي بالعيون أحلى كلام
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
